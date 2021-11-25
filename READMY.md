@@ -1,1 +1,0 @@
-#edgaras_skriptai
